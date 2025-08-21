@@ -1,1 +1,1 @@
-all rights to the logos belong to their creators
+all rights to the icons belong to their creators
